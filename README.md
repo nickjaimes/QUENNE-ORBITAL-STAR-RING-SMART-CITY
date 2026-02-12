@@ -1,3 +1,6 @@
+<img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/38175507-3457-469a-9af6-72bf75dbdec7" />
+
+
 # QUENNE-ORBITAL-STAR-RING-SMART-CITY
 
 QUENNE Stacked Intelligence – Orbital Star Ring Smart City
